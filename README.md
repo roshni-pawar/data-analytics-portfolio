@@ -37,6 +37,6 @@ Seeking an entry-level Data Analyst / Reporting Analyst / MIS Analyst opportunit
 
 ### 📫 Contact
 
-* LinkedIn: [Add your LinkedIn profile]
+* LinkedIn: 
 * Email: [roshnipawar986@gmail.com]
 
